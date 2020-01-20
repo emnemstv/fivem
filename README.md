@@ -1,0 +1,3 @@
+# fivem
+
+🔪gang-rules
